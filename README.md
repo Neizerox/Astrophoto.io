@@ -1,1 +1,0 @@
-# Astrophoto.io
